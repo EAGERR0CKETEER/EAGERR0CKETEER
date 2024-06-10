@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="350" height="350" src="https://cdn.discordapp.com/attachments/979187572293120014/1248116888538447892/Untitled634_20240605233042.png?ex=66627eef&is=66612d6f&hm=94bcd3d07dba738eb865a5e0332909ac82154c340f39ae48a90ec41b532a3c2b&">
+  <img width="350" height="350" src="https://cdn.discordapp.com/attachments/979187572293120014/1248116888538447892/Untitled634_20240605233042.png?ex=66686daf&is=66671c2f&hm=476c2d4fc2ff73547660c1c47b5c51f48ab452dcdc6aa30a36ce5ca915a8993c&">
 </p>
 <p align="center">  art creds; @keeboreal on twitter ^_^ </p>
 <p align="center">  ROCKET / AMBER !! </p>
