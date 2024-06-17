@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="350" height="350" src="https://i.imgur.com/MaKetvP.png">
+  <img width="250" height="250" src="https://i.imgur.com/MaKetvP.png">
 </p>
 <p align="center">  art creds; @keeboreal on twitter ^_^ </p>
 <p align="center">  ROCKET / AMBER !! </p>
