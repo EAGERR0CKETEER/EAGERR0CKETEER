@@ -13,5 +13,4 @@
 <p align="center">  i am not that good at socializing so if i just stop talking or something just know im not ignoring you or anything like that ^_^ </p>
 <p align="center">  moreso i just start to struggle to find the right things to talk about and stuff </p>
 <p align="center"> -- </p>
-<p align="center"> i don't mind C+H at all ^_^ </p>
-<p align="center"> same goes for kissing as long as it isnt genuinely romantic </p>
+<p align="center"> C+H , W21 ^_^ </p>
