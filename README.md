@@ -7,7 +7,7 @@
 <p align="center">  ⏬ SIGN THIS ⏬ </p>
 <p align="center">  https://eagerr0cketeer.straw.page </p>
 
-<p align="center">  biggest interest is phighting rn </p>
+<p align="center">  biggest interest is phighting and pressure rn </p>
 <p align="center">  i'm usually at the P! area, otherwise im probably somewhere else w/ phriends ^_^ </p>
 <p align="center">  ❗ </p>
 <p align="center">  i am not that good at socializing so if i just stop talking or something just know im not ignoring you or anything like that ^_^ </p>
