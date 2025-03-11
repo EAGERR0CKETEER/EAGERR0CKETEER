@@ -1,7 +1,7 @@
 <p align="center">
-  <img width="250" height="250" src="https://i.imgur.com/jnEUtca.png">
+  <img width="300" height="300" src="https://i.imgur.com/vBMxPGj.png">
 </p>
-<p align="center">  ic; @Zibzalubla on twt </p>
+<p align="center">  ic; WIITCHINGH0UR on twt </p>
 <p align="center">  ROCKET </p>
 <p align="center"> ₊⋆✧ ₎ </p>
 <p align="center"> c+h,w2i </p>
