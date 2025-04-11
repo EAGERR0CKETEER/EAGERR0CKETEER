@@ -2,7 +2,7 @@
   <img width="300" height="300" src="https://i.imgur.com/vBMxPGj.png">
 </p>
 <p align="center">  ic; WIITCHINGH0UR on twt </p>
-<p align="center">  ROCKET </p>
+<p align="center">  ROCKET/AZURE </p>
 <p align="center">  he/they/it </p>
 <p align="center"> ₊⋆✧ ₎ </p>
 <p align="center"> c+h,w2i </p>
